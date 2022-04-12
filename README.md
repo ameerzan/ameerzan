@@ -1,4 +1,5 @@
-My learning journey \n
+My learning journey
+
 Freelancer | FB & Google Marketing | Blockchain
 "I created website at a range price for business 
 and services especially for small business owner"
